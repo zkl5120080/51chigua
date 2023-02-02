@@ -1,8 +1,8 @@
 ### 51吃瓜网 最新地址 👋
 
-最新吃🍉地址： https://51cg.co/
+最新吃🍉地址： https://51cg.online/
 
-
+51吃瓜备用域名：https://51cg.co/
 
 永久地址（需VP恩、科学上网）：https://51cg.fun/
 
