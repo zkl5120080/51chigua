@@ -10,7 +10,7 @@
 
 
 
-下载免费吃瓜APP：https://ccg.91bx.info/
+下载免费吃瓜APP：https://ccgg.91bx.info/
 
 加入微信扣扣粉丝群： https://51cg.online/?path=/qun.html
 
