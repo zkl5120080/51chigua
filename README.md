@@ -14,7 +14,7 @@
 
 加入微信扣扣粉丝群： https://51cg.online/?path=/qun.html
 
-Telegram 官方用户群：https://t.me/cgkx88
+Telegram 官方用户群：https://t.me/zzzt112
 
 
 
