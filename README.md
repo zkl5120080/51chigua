@@ -2,19 +2,17 @@
 
 最新吃🍉地址： https://51cg.online/
 
-51吃瓜备用域名：https://51cg.co/
+
+51吃瓜备用域名： https://51cg.co/
+
 
 永久地址（需VP恩、科学上网）：https://51cg.fun/
 
 
 
-
-
-
-
 下载免费吃瓜APP：https://ccg.91bx.info/
 
-加入微信扣扣粉丝群： https://51cg.co/?path=/qun.html
+加入微信扣扣粉丝群： https://51cg.online/?path=/qun.html
 
 Telegram 官方用户群：https://t.me/cgkx88
 
