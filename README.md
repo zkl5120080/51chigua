@@ -1,20 +1,16 @@
 ### 51吃瓜网 最新地址 👋
 
-最新吃🍉地址： https://51cg.online/
+51吃瓜最新官网 https://51cg.plus/ 
 
+51吃瓜备用线路 https://51cg.online/
 
-51吃瓜备用域名： https://51cg.co/
+51吃瓜永久地址（需科学⬆️网工具）https://51cg.fun/
 
+51吃瓜免费App https://chg.app003.me/
 
-永久地址（需VP恩、科学上网）：https://51cg.fun/
-
-
-
-下载免费吃瓜APP：https://ccgg.91bx.info/
+51吃瓜TG官方群 https://t.me/https51cgfun/13/
 
 加入微信扣扣粉丝群： https://51cg.online/?path=/qun.html
-
-Telegram 官方用户群：https://t.me/zzzt112
 
 
 
@@ -28,7 +24,7 @@ Telegram 官方用户群：https://t.me/zzzt112
 
 4.以上方法都不行请截图发送给群管理反馈～
 
-5.下载蚂蚁加速器：https://ant.aff008.fun/c-5016/a-brEXR 科学上网工具
+5.下载蚂蚁加速器：https://ant.aff008.life/c-5016/a-brEXR 科学上网工具
 
 
 请把网址或者QQ群分享给身边有需要的人 ，您的转发、分享是我们前进的动力～
