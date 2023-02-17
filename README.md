@@ -6,7 +6,7 @@
 
 51吃瓜永久地址（需科学⬆️网工具）https://51cg.fun/
 
-51吃瓜免费App https://chg.app003.me/
+51吃瓜免费App  https://chg.app003.tips
 
 51吃瓜TG官方群 https://t.me/https51cgfun/13/
 
