@@ -6,7 +6,7 @@
 
 51吃瓜永久地址（需科学⬆️网工具）https://51cg.fun/
 
-51吃瓜免费App  https://chg.app003.tips
+51吃瓜免费App  https://chg.app003.vip/
 
 51吃瓜TG官方群 https://t.me/https51cgfun/13/
 
@@ -24,7 +24,7 @@
 
 4.以上方法都不行请截图发送给群管理反馈～
 
-5.下载蚂蚁加速器：https://ant.aff008.net/c-5016/a-brEXR 科学上网工具
+5.下载蚂蚁加速器：https://ant.aff008.org/c-5016/a-brEXR 科学上网工具
 
 
 请把网址或者QQ群分享给身边有需要的人 ，您的转发、分享是我们前进的动力～
